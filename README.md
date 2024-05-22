@@ -10,4 +10,4 @@ Meu nome é Daniel Fernandes Maiolo
 
  - 00001080358237sp@al.educacao.sp.gov.br
 
- - ![](https://media1.tenor.com/m/Yd0yl1GxSdkAAAAC/neco-arc.gif)
+ ![](https://media1.tenor.com/m/Yd0yl1GxSdkAAAAC/neco-arc.gif)
